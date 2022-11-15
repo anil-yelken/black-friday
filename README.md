@@ -1,2 +1,0 @@
-# black-friday
-black-friday
