@@ -2,4 +2,4 @@
 
 [The Cyber Plumber's Lab Guide and Interactive Access](https://opsdisk.gumroad.com/l/cphlab/blackfriday2022)
 
-50% off will be applied at checkout (Code BLACKFRIDAY2022)
+[KSEC LABS](https://labs.ksec.co.uk/black-friday-sale/)
