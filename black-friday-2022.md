@@ -6,3 +6,5 @@
 
 [Letsdefend](https://letsdefend.io/)  
 %50 discount code: BLCKFRDY
+
+[Security Blue Team Black Friday](https://securityblue.team/black-friday/) 
