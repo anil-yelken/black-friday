@@ -8,3 +8,5 @@
 %50 discount code: BLCKFRDY
 
 [Security Blue Team Black Friday](https://securityblue.team/black-friday/) 
+
+[Pentesterlab Black Friday](https://www.pentesterlab.com/pro) 
